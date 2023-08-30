@@ -1,2 +1,3 @@
 # IMPLEMENTING-STRATEGY-ON-PLASTIC-WASTE
-Strategic statement of this organisation is oriented with plastic consumption and profitability growth, where implementation of procedures regarding recycling or reuse plastic for more productivity considering UK fashion industry.
+The strategic statement of this organization is oriented toward plastic consumption and profitability growth, where implementation of procedures regarding recycling or reuse plastic for more productivity considering the UK fashion industry.
+## Vision and Mission regarding plastic wastage recycling model on fashion retail company of UK (VERY company)
